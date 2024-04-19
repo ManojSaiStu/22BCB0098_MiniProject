@@ -1,1 +1,0 @@
-# 22BCB0098_MiniProject
